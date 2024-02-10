@@ -1,2 +1,2 @@
-# ChenxiHan1510.github.io
+# ChenxiHan.github.io
 辰熙个人主页
